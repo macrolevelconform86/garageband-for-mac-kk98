@@ -1,4 +1,4 @@
-# 
+# smart GarageBand for macOS Addon | motion-tracking + video-stabilization offers the most advanced GarageBand for macOS addon, with motion-tracking and video-stabilization. Ideal
 
 
 
